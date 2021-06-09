@@ -1,2 +1,2 @@
-# -Google-UX-Design
+# Google-UX-Design
 PROFESSIONAL CERTIFICATE
